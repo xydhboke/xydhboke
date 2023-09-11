@@ -2,9 +2,9 @@
 
 导 航 永 久 域 名Https://xydhav.tv
 
-⭐️ 👉 地址一 ：HttpS://3780xydh.com
+⭐️ 👉 地址一 ：HttpS://3780xydh.com:8888
 
-⭐️ 👉 地址二 ：HttpS://3781xydh.com
+⭐️ 👉 地址二 ：HttpS://3781xydh.com:8888
 
 ⭐️⭐️‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
